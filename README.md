@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Frameworks**
 
-- 📫 How to reach me **milanmohan398@gmail.com**
+- 📫 How to reach me **milanmohan398@gmail.com** Ph: +91 7510343398
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
